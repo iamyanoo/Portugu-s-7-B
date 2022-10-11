@@ -1,0 +1,1 @@
+As glândulas podem ser definidas como estruturas formadas por tecido epitelial capazes de produzir substâncias úteis para o nosso organismo. Essas substâncias são chamadas tradicionalmente de secreções e podem ser produzidas e lançadas dentro do nosso corpo ou então para fora dele, como é o caso do suor

@@ -1,0 +1,1 @@
+Platelmintos são conhecidos como vermes de corpo achatado, devido a sua estrutura corporal ser achatada dorsoventralmente.  São animais triblásticos, acelomados e com simetria bilateral. O sistema digestório é incompleto e ausente em algumas espécies. A excreção ocorre por protonefrídio, as trocas gasosas ocorrem por difusão, e o sistema nervoso é provido de gânglios
